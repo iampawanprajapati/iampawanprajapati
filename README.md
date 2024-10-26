@@ -20,7 +20,7 @@ Here are a few projects I've worked on:
 Feel free to reach out if you want to collaborate on a project or just chat!
 
 [- [LinkedIn]](https://www.linkedin.com/in/pawan-prajapati-6175b92b7/)
-- [Twitter](https://x.com/pawan0prajapati))
+- [Twitter](https://x.com/pawan0prajapati)
 -
 
 Thanks for visiting my profile! 🌟
